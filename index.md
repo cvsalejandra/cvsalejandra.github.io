@@ -3,7 +3,7 @@
 
 ### Local Iwakuni Bridge 
 
-![](https://goo.gl/images/hK8Jr4)
+![bridge](https://goo.gl/images/hK8Jr4)
 
 
 
