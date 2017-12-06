@@ -3,7 +3,7 @@
 
 ### Local Iwakuni Bridge 
 
-![bridge](https://goo.gl/images/hK8Jr4)
+![bridge](http://www.japan-guide.com/g2/6177_03.jpg)
 
 
 
