@@ -5,6 +5,8 @@
 
 ![bridge](http://www.japan-guide.com/g2/6177_03.jpg)
 
+[My Bio](bio.html)
+
 
 
 
