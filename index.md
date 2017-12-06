@@ -2,9 +2,7 @@
 ## I am residing in Iwakuni, Japan 
 
 
-
-
-
+cvsalejandra.github.io/IMG_2040.jpg 
 
 
 
