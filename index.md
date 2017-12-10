@@ -1,8 +1,5 @@
-
-
-
 # Alejandra V Cuevas 
-##  welcome to my blog where i will share my experiences of living in japan.
+##  Welcome to my blog where i will share my experiences of living in japan.
 ### Local Iwakuni Bridge 
 
 ![bridge](http://www.japan-guide.com/g2/6177_03.jpg)
