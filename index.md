@@ -1,4 +1,4 @@
-
+ 
 # Alejandra V Cuevas 
 ##  welcome to my blog where i will share my experiences of living in japan.
 ### Local Iwakuni Bridge 
@@ -7,7 +7,7 @@
 
 [My Bio](bio.html)
 
-[Places Traveled](Places Traveled.html) 
+[Places Traveled](Traveled.html) 
 
 ### Currently a college student, food connoisseur, Traveler. 
 
