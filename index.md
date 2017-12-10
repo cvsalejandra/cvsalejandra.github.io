@@ -7,7 +7,7 @@
 
 [My Bio](bio.html)
 
-[Places Traveled](Traveled.html) 
+[Places Traveled](Travel.html) 
 
 ### Currently a college student, food connoisseur, Traveler. 
 
