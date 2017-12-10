@@ -1,6 +1,6 @@
 # My name is Alex i'm 24 years old and currently living in Iwakuni, Japan. I am from California and grew up in the city 
 
-![me](15541935_1297711063633654_424382652511270587_n.jpg) 
+![](15541935_1297711063633654_424382652511270587_n.jpg) 
 
 
 
