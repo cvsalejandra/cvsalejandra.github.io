@@ -14,7 +14,7 @@
 
 
 ## Tokyo 
-##### Home to the Famous shibuya crossing and tokyp tower which oversees the city. 
+##### Home to the Famous shibuya crossing and tokyo tower which oversees the city. 
 
 ![me](https://scontent-nrt1-1.xx.fbcdn.net/v/t1.0-9/14233188_1173860122685416_3342925379902776550_n.jpg?oh=98a31cf7fd1a368389ce89002c4ec5c5&oe=5A93801B)
 
