@@ -1,3 +1,4 @@
+
 # Alex Cuevas 
 ## I am residing in Iwakuni, Japan 
 
@@ -5,7 +6,8 @@
 
 ![bridge](http://www.japan-guide.com/g2/6177_03.jpg)
 
-[My Bio](bio.md)
+[My Bio](bio.html)
+[Places Traveled] (bio.html)
 
 
 
