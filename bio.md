@@ -1,6 +1,6 @@
-# My name is Alex i'm 24 years old and currently living in Iwakuni, Japan. I am from California and grew up in the city 
+# My name is Alex i'm 24 years old and currently living in Iwakuni, Japan. I am from Northen California also known as the Bay Area to locals. Near San Francisco known for their famous clam chowder and pier 39
 
-![](22519487_1720240531380703_8933969123433620056_n.jpg)
+![home](22519487_1720240531380703_8933969123433620056_n.jpg "Bay Area")
 
 ![](16114948_1375674679170625_8134354676662017266_n.jpg) 
 
