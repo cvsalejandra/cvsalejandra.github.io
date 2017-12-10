@@ -10,6 +10,6 @@
 
 [Places Traveled](traveled.html)
 
-### Currently a college student, food connoisseur, Traveler. 
+### Currently a college student, food connoisseur, and travler. 
 
 
