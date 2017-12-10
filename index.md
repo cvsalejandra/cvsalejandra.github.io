@@ -1,7 +1,6 @@
 
 # Alex Cuevas 
-## I am residing in Iwakuni, Japan 
-
+##  welcome to my blog where i will share my experiences of living in japan.
 ### Local Iwakuni Bridge 
 
 ![bridge](http://www.japan-guide.com/g2/6177_03.jpg)
@@ -10,6 +9,6 @@
 
 [Places Traveled](traveled.html)
 
-### Currently a college student, food connoisseur, and travler. 
+### Currently a college student, food connoisseur, Traveler. 
 
 
