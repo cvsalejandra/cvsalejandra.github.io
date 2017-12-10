@@ -8,4 +8,4 @@
 ## I am a proud Mexican-American I was the first to graduate from high school and will be the first to graduate from college. 
 ![me](https://upload.wikimedia.org/wikipedia/en/3/32/Mexican_American_Flag.PNG) 
 
-### I am currently a student at University of Maryland where i am earning my Associates in General Studies, Once complete i will be applying to 4 year school in either California or Colorado.  
+### I am currently a student at University of Maryland where i am earning my Associates in General Studies, Once complete i will be applying to 4 year University in either California or Colorado.  
