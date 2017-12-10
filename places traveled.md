@@ -1,3 +1,4 @@
+
 ## Kyoto, Japan 
 ##### My favorite place i have traveled in Japan is Kyoto home to the famous Shrines.  It is the old Capital of Japan and filled with relgious Shrines and Temples. 
 
@@ -27,4 +28,9 @@
 
 ![me](https://scontent-nrt1-1.xx.fbcdn.net/v/t1.0-9/13707667_1127961563941939_5856256705734760232_n.jpg?oh=5b4b392efa19479dde5b2138590abdd9&oe=5A950DBB)
 ![me](https://i.ytimg.com/vi/lp5XlUvGVNk/hqdefault.jpg) 
+
+# Back to the beginning 
+[Home](index.html) 
+
+
 
