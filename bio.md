@@ -1,6 +1,9 @@
+
 # My name is Alex i'm 24 years old and currently living in Iwakuni, Japan. I am from Northen California also known as the Bay Area to locals. Near San Francisco known for their famous clam chowder and pier 39
 
 ![home](http://affinitymagazine.us/wp-content/uploads/2017/02/Bay-Bridge-at-Sunset_Masthead_1200x540.jpg)
+
+![me](https://www.facebook.com/photo.php?fbid=1720240531380703&set=pb.100001843186246.-2207520000.1512881396.&type=3&theater) 
 
 
 
