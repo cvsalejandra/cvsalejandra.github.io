@@ -1,4 +1,4 @@
-## Fushimi inari-taisha Kyoto, Japan 
+## Kyoto, Japan 
 ##### My favorite place i have traveled in Japan is Kyoto home to the famous Shrines.  It is the old Capital of Japan and filled with relgious Shrines and Temples. 
 
 
