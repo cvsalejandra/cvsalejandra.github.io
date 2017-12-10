@@ -3,7 +3,7 @@
 
 ![home](http://affinitymagazine.us/wp-content/uploads/2017/02/Bay-Bridge-at-Sunset_Masthead_1200x540.jpg)
 
-![me](https://www.facebook.com/photo.php?fbid=1720240531380703&set=pb.100001843186246.-2207520000.1512881396.&type=3&theater) 
+![me](https://scontent-nrt1-1.xx.fbcdn.net/v/t1.0-9/22519487_1720240531380703_8933969123433620056_n.jpg?oh=deb64d59ef77ac959a11bf3eb060a9d3&oe=5A95A8B4) 
 
 
 
