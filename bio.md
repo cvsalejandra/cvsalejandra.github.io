@@ -2,10 +2,12 @@
 
 ![me](16114948_1375674679170625_8134354676662017266_n.jpg) 
 
+![me](15541935_1297711063633654_424382652511270587_n.jpg) 
 
 
 
 
 
 
-## This is my blog where i will be documenting 
+
+## This is my blog where i will be documenting my traveling around Japan. 
