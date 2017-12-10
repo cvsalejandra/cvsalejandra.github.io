@@ -10,13 +10,6 @@
 
 [Places Traveled](traveled.html)
 
+### Currently a college student, food connoisseur, Traveler. 
 
 
-
-
-
-
-
-### Currently a college student at the University of Maryland Univeristy College (Asia Divison)
-
-#### Hello my name is alex and welcome to my blog where i will share my experiences of living in japan. 
