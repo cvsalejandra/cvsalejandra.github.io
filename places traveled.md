@@ -23,7 +23,7 @@
 ![me](https://scontent-nrt1-1.xx.fbcdn.net/v/t1.0-9/14237632_1172798269458268_2871164153748879075_n.jpg?oh=62c2acc35392f40e60a761927886eadb&oe=5A92BD3D)
 
 ## Hiroshima, Japan 
-##### Peace memorial park where the Atomic bomb was dropped in 1945 destroying the city but some buildings left standing like this one which was listed as a World heritage site in 1996. Also home to the faamous ramen shop Ichiran which happens to be my favorite my favorite go to ramen place.
+##### Peace memorial park where the Atomic bomb was dropped in 1945 destroying the city but some buildings left standing like this one which was listed as a World heritage site in 1996. Also home to the famous ramen shop Ichiran which happens to be my favorite my favorite go to ramen place.
 
 ![me](https://scontent-nrt1-1.xx.fbcdn.net/v/t1.0-9/13707667_1127961563941939_5856256705734760232_n.jpg?oh=5b4b392efa19479dde5b2138590abdd9&oe=5A950DBB)
 ![me](https://i.ytimg.com/vi/lp5XlUvGVNk/hqdefault.jpg) 
