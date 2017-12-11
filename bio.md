@@ -13,5 +13,5 @@
 ### I am currently a student at University of Maryland where i am earning my Associates in General Studies, Once complete i will be applying to 4 year University in either California or Colorado.  
 
 
-# Home 
+# Back to the beginning 
 [home](index.html)
