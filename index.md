@@ -7,6 +7,7 @@
 [My Bio](bio.html)
 
 [places](cvsalejandra.github.io/places traveled.html) 
+[topic](topic.html) 
 ### Currently a college student, food connoisseur, Traveler. 
 
 
