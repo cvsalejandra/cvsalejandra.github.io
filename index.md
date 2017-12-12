@@ -9,7 +9,7 @@
 [places](cvsalejandra.github.io/places traveled.html) 
 
 
-[topic](https://github.com/cvsalejandra/cvsalejandra.github.io/blob/master/Topic.html)
+[topic](Topic.html)
 
 
 ### Currently a college student, food connoisseur, Traveler. 
