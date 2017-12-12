@@ -6,10 +6,10 @@
 
 [My Bio](bio.html)
 
-[places](cvsalejandra.github.io/places traveled.html) 
+[Places Traveled](cvsalejandra.github.io/places traveled.html) 
 
 
-[topic](Topic.html)
+[My Topic](cvsalejandra.github.io/myTopic.html)
 
 
 ### Currently a college student, food connoisseur, Traveler. 
