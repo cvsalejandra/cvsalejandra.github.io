@@ -6,7 +6,7 @@
 
 [My Bio](bio.html)
 
-[Places Traveled](cvsalejandra.github.io/places traveled.html) 
+[Places Traveled](Traveled.html) 
    
 
 [My Topic](Topic.html)
