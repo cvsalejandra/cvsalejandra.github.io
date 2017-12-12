@@ -9,9 +9,8 @@
 [Places Traveled](cvsalejandra.github.io/places traveled.html) 
 
 
-[My Topic](cvsalejandra.github.io/myTopic.html)
-
-
+[My Topic](topic.html)
+     
 ### Currently a college student, food connoisseur, Traveler. 
-
+  
 
